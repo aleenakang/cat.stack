@@ -1,5 +1,5 @@
 # cursed cats
-###### the most credible and professional website you will ever see regarding cats
+###### the most professional website you will ever see regarding cats
 
 ## [click for serotonin](https://www.demilked.com/funny-doodles-poorly-drawn-cats/)
 
@@ -17,3 +17,6 @@
 
 ![Image](https://steamuserimages-a.akamaihd.net/ugc/958604921954553724/0724E67F9F170A5F3023193166E48CB5D316BC0B/?imw=637&imh=358&ima=fit&impolicy=Letterbox&imcolor=%23000000&letterbox=true)
 
+### if you are currently wondering why all these cats are listed as #1, that is because they are all #1 in my heart <3
+
+###### thank you for visiting my website about cats
