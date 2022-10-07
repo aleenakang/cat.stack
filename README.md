@@ -1,5 +1,5 @@
-# cat.stack
 # cursed cats
+### I love naming cats
 ## [click for serotonin](https://www.demilked.com/funny-doodles-poorly-drawn-cats/)
 
 1. **ṃ̴̮̜͇͚̈ȅ̶̢̞͈͈̹͈͕͖͖̟͔̤͕̪̅́̏́̀̚͘͜͠ę̷͈̺̻̙͔̫͕̜͕̣̥́p̸̟̠̟͚̠̣̓͆̂̆̈́͘̕**
