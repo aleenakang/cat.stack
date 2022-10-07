@@ -1,6 +1,6 @@
 # cat.stack
 # cursed cats
-## article for a rainy day:[Link](https://www.demilked.com/funny-doodles-poorly-drawn-cats/)
+## article for a rainy day: [cat](https://www.demilked.com/funny-doodles-poorly-drawn-cats/)
 
 1. **ṃ̴̮̜͇͚̈ȅ̶̢̞͈͈̹͈͕͖͖̟͔̤͕̪̅́̏́̀̚͘͜͠ę̷͈̺̻̙͔̫͕̜͕̣̥́p̸̟̠̟͚̠̣̓͆̂̆̈́͘̕**
 
