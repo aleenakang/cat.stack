@@ -1,5 +1,5 @@
 # cursed cats
-###### I love naming cats
+###### the most credible and professional website you will ever see regarding cats
 
 ## [click for serotonin](https://www.demilked.com/funny-doodles-poorly-drawn-cats/)
 
